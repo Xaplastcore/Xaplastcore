@@ -6,3 +6,9 @@
 </p>
 <p align="center">
 ⋆. 𐙚˚࿔ 𝔖𝔢𝔫𝔱𝔦𝔢𝔫𝔱 .ᐟ 𝒫𝒾𝓍𝒾ℯ 𝜗𝜚˚⋆
+<p align="center">
+▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10 
+<p align="center">
+𖹭.ᐟ ᵦₑₗₒᵥₑ𝓭ₛ = @AcxerSonnelino / 𝒜𝓁ℯ𝓍 , 𝓨𝓾𝓷𝓸 / (𝓬𝓻𝓪𝔃𝔂) 𝓫𝓮𝓪𝓻 , ᵣₑₘ / ᵣₑₘₘᵧ , ᯓ
+ <p align="center">
+࣪ ִֶָ☾. ғₐₘᵢₗᵧ = @Kiezzes / ᴹᵒᵐ + @Carfih / ᴰᵃᵈ
