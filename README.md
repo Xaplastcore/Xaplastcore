@@ -9,7 +9,7 @@
 <p align="center">
 ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10 
 <p align="center">
-𖹭.ᐟ ᵦₑₗₒᵥₑ𝓭ₛ = @AcxerSonnelino / 𝒜𝓁ℯ𝓍 , 𝓨𝓾𝓷𝓸 / (𝓬𝓻𝓪𝔃𝔂) 𝓫𝓮𝓪𝓻 , ᵣₑₘ / ᵣₑₘₘᵧ , ᯓ
+𖹭.ᐟ ᵦₑₗₒᵥₑ𝓭 = 𝓨𝓾𝓷𝓸 / (𝓬𝓻𝓪𝔃𝔂) 𝓫𝓮𝓪𝓻 ᯓ
  <p align="center">
 ࣪ ִֶָ☾. ғₐₘᵢₗᵧ = @Kiezzes / ᴹᵒᵐ + @Carfih / ᴰᵃᵈ
 <p align="center">
