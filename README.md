@@ -12,8 +12,7 @@
 𖹭.ᐟ ᵦₑₗₒᵥₑ𝓭 = 𝓨𝓾𝓷𝓸 / (𝓬𝓻𝓪𝔃𝔂) 𝓫𝓮𝓪𝓻 ᯓ
  <p align="center">
 ࣪ ִֶָ☾. ғₐₘᵢₗᵧ = @Kiezzes / ᴹᵒᵐ + @Carfih / ᴰᵃᵈ
-  <p align="center">
-   ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
+  
 <p align="center">
  ╰┈➤ ғᴇᴇʟ ғʀᴇᴇ ᴛᴏ ᴀᴘᴘʀᴏᴀᴄʜ ᴍᴇ ᴡʜᴇɴ ʏᴏᴜ sᴇᴇ ᴍᴇ .ᐟ
  <p align="center">
