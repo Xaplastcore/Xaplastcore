@@ -1,7 +1,7 @@
 <p align="center">
-<img width="80" height="20" alt="soundwave-gigglingbat" src="https://github.com/user-attachments/assets/3d53f340-afd6-4480-855d-1b7fcbe7b9a6" />
-<img width="40" height="18" alt="pan-foxlorist" src="https://github.com/user-attachments/assets/a869c98f-8a07-495f-a7ff-1b367a99e3d2" />
-<img width="80" height="18" alt="shockwave-gigglingbat" src="https://github.com/user-attachments/assets/494abaf9-8ad8-4981-adb0-a94fe4b154d9" />
+<img width="75" height="20" alt="soundwave-gigglingbat" src="https://github.com/user-attachments/assets/3d53f340-afd6-4480-855d-1b7fcbe7b9a6" />
+<img width="50" height="19" alt="pan-foxlorist" src="https://github.com/user-attachments/assets/a869c98f-8a07-495f-a7ff-1b367a99e3d2" />
+<img width="75" height="20" alt="shockwave-gigglingbat" src="https://github.com/user-attachments/assets/494abaf9-8ad8-4981-adb0-a94fe4b154d9" />
 
 
 <p align="center">
