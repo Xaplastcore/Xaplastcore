@@ -14,5 +14,11 @@
 <p align="center">
   $$\color{#BD9FCB} \text{₊˚⊹ ᰔ. 𝚝𝐲𝚜𝐦}$$ <a href=https://github.com/AcxerSonnellino/>𝚊𝐥𝚎𝐱</a> $$\color{#BD9FCB} \text{𝟺 𝐠𝚛𝐚𝚙𝐡𝚒𝐜 <𝟑 ︵ .ᐟ  ֹᨳଓ ՟}$$
 
+</details>
 
-  <p align="center"> ${\textsf{\color{#BD9FCB}𝗍һᥲᥒks 𝗍᥆}}$ > ! <a href=https://github.com/title-town>title</a> <a href=https://github.com/pt-stars>stars</a> <a href=https://github.com/pt-walk-of-fame>fame</a> <a href=https://github.com/pt-of-awesomeness>awesomeness</a> <a href=https://github.com/pt-fashion>fashion</a> <a href=https://github.com/pt-hall-of-media>media</a> <a href=https://github.com/pt-contributers>contributers</a> <a href=https://github.com/fans-town>fans</a> <a href=https://github.com/ponytownyumeshippers>yumeshippers</a> <a href=https://github.com/pt-nominations>nominations</a> <a href=https://github.com/pt-medals>medals</a> <a href=https://github.com/ponychievements>achievements</a> <a href=https://github.com/pt-loveforfictional>loveforfictional</a> <a href=https://github.com/ponytowncosplayers>cosplayers</a> <a href=https://github.com/ponytown-yumes>yumes</a> <a href=https://github.com/ship-town>ships</a> <a href=https://github.com/FOLKTOWN>folktown</a> <a href=https://github.com/pt-medals2>medals2</a> <a href=https://github.com/kaotown>kaotown</a> 
+<div align="center">
+
+<details>
+<summary> ${\textsf{\color{#ae8fbd}𝗍і𝗍ᥣᥱs}}$ </summary>
+
+ ${\textsf{\color{#BD9FCB}♡}}$ > <a href=https://github.com/title-town>title</a> <a href=https://github.com/pt-stars>stars</a> <a href=https://github.com/pt-walk-of-fame>fame</a> <a href=https://github.com/pt-of-awesomeness>awesomeness</a> <a href=https://github.com/pt-fashion>fashion</a> <a href=https://github.com/pt-hall-of-media>media</a> <a href=https://github.com/pt-contributers>contributers</a> <a href=https://github.com/fans-town>fans</a> <a href=https://github.com/ponytownyumeshippers>yumeshippers</a> <a href=https://github.com/pt-nominations>nominations</a> <a href=https://github.com/pt-medals>medals</a> <a href=https://github.com/ponychievements>achievements</a> <a href=https://github.com/pt-loveforfictional>loveforfictional</a> <a href=https://github.com/ponytowncosplayers>cosplayers</a> <a href=https://github.com/ponytown-yumes>yumes</a> <a href=https://github.com/ship-town>ships</a> <a href=https://github.com/FOLKTOWN>folktown</a> <a href=https://github.com/pt-medals2>medals2</a> <a href=https://github.com/kaotown>kaotown</a> 
