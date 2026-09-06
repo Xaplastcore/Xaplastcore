@@ -5,7 +5,7 @@
 <details>
 <summary> ${\textsf{\color{#ae8fbd}[︖ ] ωɦ𝖾𝗋𝖾 𝗒ⱺυ'ᥣᥣ 𝖿𝗂𐓣ᑯ ꭑ𝖾}}$ </summary>
 
- ${\textsf{\color{#b7a9c9}always in swafe serv 1 | ifw not im sometimes in chinese serv/18+ serwv wif friends!}}$ 
+ ${\textsf{\color{#b7a9c9}always in swafe serv 1 | ifw not}}$ ${\textsf{\color{#b7a9c9}Im sometimes in Chinese n 18+ serwv wif frwens!}}$
 
  ${\textsf{\color{#9c95ba}✦ 𝗌ρⱺ𝗍𝗌 . commownly in transformers spotw ♡ / but alwso in dandys world spot, docks, anwd near bakery >.<}}$
 
