@@ -9,7 +9,7 @@
 
  ${\textsf{\color{#9c95ba}✦ 𝗌ρⱺ𝗍𝗌 . commownly in transformers spotw ♡ / but}}$ ${\textsf{\color{#9c95ba}alwso in dandys world spot, docks, anwd near}}$ ${\textsf{\color{#9c95ba}bakery >.<}}$
 
- ${\textsf{\color{#8081ad}ꔫ ꭑⱺ𝗌𝗍 𝖼ⱺꭑꭑⱺ𐓣ᥣ𝗒 ω𝗂𝖿/𝖿ⱺυ𐓣ᑯ . . . wifh}}$ <a href=https://github.com/DaaeChristine>arcwee</a>${\textsf{\color{#8081ad},}}$ <a href=https://github.com/L0st-Veiw>twailgate</a>${\textsf{\color{#8081ad},}}$ <a href=https://github.com/TheLabyrinthOfLife>jeanne</a>${\textsf{\color{#8081ad},}}$ <a href=https://github.com/P4RAN01A>megwatron ♡</a> <a href=https://github.com/AcxerSonnellino>ratwhet ♡</a>  ${\textsf{\color{#8081ad}and cookie!!}}$
+ ${\textsf{\color{#8081ad}ꔫ ꭑⱺ𝗌𝗍 𝖼ⱺꭑꭑⱺ𐓣ᥣ𝗒 ω𝗂𝖿/𝖿ⱺυ𐓣ᑯ . . . wifh}}$ <a href=https://github.com/DaaeChristine>arcwee</a>${\textsf{\color{#8081ad},}}$ <a href=https://github.com/L0st-Veiw>twailgate</a>${\textsf{\color{#8081ad},}}$ <a href=https://github.com/TheLabyrinthOfLife>jeanne</a>${\textsf{\color{#8081ad},}}$ <a href=https://github.com/P4RAN01A>megwatron ♡</a>${\textsf{\color{#8081ad},}}$ <a href=https://github.com/AcxerSonnellino>ratwhet ♡</a>  ${\textsf{\color{#8081ad}and cookie!!}}$
 
  </details>
 
